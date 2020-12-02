@@ -5,3 +5,7 @@ See yea
 
 
 Here is to the new start! cheeers :) 
+
+Okay .. I'm getting there .I just started to relise >>> I'm smart :) 
+
+
